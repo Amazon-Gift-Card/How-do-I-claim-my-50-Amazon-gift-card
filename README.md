@@ -2,7 +2,7 @@
 
 Are you looking to claim a **$50 Amazon gift card** without any hassle? You're in the right place! We understand how exciting it can be to receive a free gift card, and in this comprehensive guide, we will walk you through the **simple steps** to claim your **$50 Amazon gift card**. Additionally, we'll share some **tips and tricks** to maximize your chances of receiving rewards like this in the future.
 
-### [✅CLICK HERE TO GET NOW FREE!](https://www.fpo.go.th/main/fpo/media/FPO/allgifttodayfree.html)
+### [✅CLICK HERE TO GET NOW FREE!](https://todaysfree.xyz/)
 
 **Before we dive into the steps, here's how you can claim your $50 Amazon gift card right away:**
 
